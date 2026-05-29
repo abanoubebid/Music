@@ -10,7 +10,6 @@ ex:
 
 
 
-![Uploading Screenshot 2026-05-29 at 5.32.08 AM.png…]()
 
 
 
